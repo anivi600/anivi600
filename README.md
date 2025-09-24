@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **anivisam31@gmail.com**
 
-- ⚡ Fun fact **I can sleep for 16+ hours**
+-
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
